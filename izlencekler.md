@@ -18,3 +18,9 @@
 - Hachi: A Dog’s Tale – Hachi: Bir Köpeğin Hikayesi
 
 - Dövüş Kulübü
+  
+- Revolver 2005
+  
+- (1978) Faces of Death-Ölümle Yüzyüze Gelmek
+  
+- The Pianist
